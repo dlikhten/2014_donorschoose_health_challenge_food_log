@@ -1,6 +1,6 @@
-# 2014 Food Challenge Log
+# Week 1
 
-## Monday 1/13/2014
+## Monday
 
 ### Breakfast
 
