@@ -8,3 +8,8 @@
 - Bagel with creamcheese + salami (daughter's leftovers)
 - A few strawberries
 
+### Lunch
+
+- Rice and chicken (from home)
+- 1 large orange
+
