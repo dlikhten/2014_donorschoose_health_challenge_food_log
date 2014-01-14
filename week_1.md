@@ -17,4 +17,10 @@
 
 - Pasta with Cheese
 - Spinach salad with eel and nuts
+- 1 apple
 
+## Tuesday
+
+### Breakfast
+
+- Skip
