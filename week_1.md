@@ -24,3 +24,10 @@
 ### Breakfast
 
 - Skip
+
+### Lunch
+
+- Spaghetti and Meatballs (from home)
+- 1 large orange
+
+
