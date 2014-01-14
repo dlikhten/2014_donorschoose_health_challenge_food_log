@@ -13,3 +13,8 @@
 - Rice and chicken (from home)
 - 1 large orange
 
+### Dinner
+
+- Pasta with Cheese
+- Spinach salad with eel and nuts
+
