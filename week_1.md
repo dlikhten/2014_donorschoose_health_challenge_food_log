@@ -39,3 +39,8 @@
 ### Breakfast
 
 - Spaghetti w/ cheese and meatball
+
+### Lunch
+
+- Chicken + Rice (from home)
+- 1 large orange
