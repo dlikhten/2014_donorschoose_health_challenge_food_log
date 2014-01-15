@@ -30,4 +30,6 @@
 - Spaghetti and Meatballs (from home)
 - 1 large orange
 
+### Dinner
 
+- Rice, Beans, Potatoes, Chicken Brest (3 bowls)
