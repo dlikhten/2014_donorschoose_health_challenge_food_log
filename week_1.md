@@ -33,3 +33,9 @@
 ### Dinner
 
 - Rice, Beans, Potatoes, Chicken Brest (3 bowls)
+
+## Wednesday
+
+### Breakfast
+
+- Spaghetti w/ cheese and meatball
