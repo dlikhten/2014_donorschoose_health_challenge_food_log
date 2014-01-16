@@ -50,3 +50,9 @@
 - Pasta + Chicken
 - 2x apples
 - A few bowls of cereal.
+
+## Thursday
+
+### Breakfast
+
+- Skip
