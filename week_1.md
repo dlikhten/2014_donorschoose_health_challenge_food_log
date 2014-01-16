@@ -44,3 +44,9 @@
 
 - Chicken + Rice (from home)
 - 1 large orange
+
+### Dinner
+
+- Pasta + Chicken
+- 2x apples
+- A few bowls of cereal.
