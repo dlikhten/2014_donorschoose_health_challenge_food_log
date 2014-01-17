@@ -67,3 +67,9 @@
 
 - Pasta with Cheese and Meatballs
 - 1 apple
+
+## Friday
+
+### Breakfast
+
+- Bagel w/ creamcheese and salami
