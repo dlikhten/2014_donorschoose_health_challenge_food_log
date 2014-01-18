@@ -78,3 +78,9 @@
 
 - Pasta with Meatball
 - 1 Apple
+
+### Dinner
+
+- Pasta with Chicken x2
+- 1 salad
+- 1 fruit salad
