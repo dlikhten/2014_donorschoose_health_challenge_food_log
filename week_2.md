@@ -2,4 +2,8 @@
 
 ## Monday
 
+### Breakfast
+
+- Cereal
+- Apple
 
