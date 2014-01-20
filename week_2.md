@@ -7,3 +7,6 @@
 - Cereal
 - Apple
 
+### Lunch
+
+- Rice w/ Shrimp
