@@ -11,3 +11,7 @@
 
 - Rice w/ Shrimp
 - Mash potatoes + more shrimp leftovers from Daughter's lunch
+
+### Dinner
+
+- Rice w/ Vegetables and Cooked Sausages
