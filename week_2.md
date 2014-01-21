@@ -25,6 +25,10 @@
 
 ### Lunch
 
+- Rice + Shrimp
+- Pear
+- Grapes
+
 ### Dinner
 
 ## Wednesday
