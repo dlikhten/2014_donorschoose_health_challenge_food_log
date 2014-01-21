@@ -20,6 +20,9 @@
 
 ### Breakfast
 
+- Cereal
+- Strawberries
+
 ### Lunch
 
 ### Dinner
