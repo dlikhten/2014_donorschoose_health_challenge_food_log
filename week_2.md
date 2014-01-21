@@ -15,3 +15,35 @@
 ### Dinner
 
 - Rice w/ Vegetables and Cooked Sausages
+
+## Tuesday
+
+### Breakfast
+
+### Lunch
+
+### Dinner
+
+## Wednesday
+
+### Breakfast
+
+### Lunch
+
+### Dinner
+
+## Thursday
+
+### Breakfast
+
+### Lunch
+
+### Dinner
+
+## Friday
+
+### Breakfast
+
+### Lunch
+
+### Dinner
