@@ -39,6 +39,8 @@
 
 ### Breakfast
 
+- Skip
+
 ### Lunch
 
 ### Dinner
