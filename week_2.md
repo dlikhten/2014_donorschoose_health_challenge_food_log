@@ -31,6 +31,10 @@
 
 ### Dinner
 
+- Chicken breast w/ Rice
+- Orange
+- Pear
+
 ## Wednesday
 
 ### Breakfast
