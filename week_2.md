@@ -43,6 +43,9 @@
 
 ### Lunch
 
+- Pear
+- Pasta with Sausages
+
 ### Dinner
 
 ## Thursday
