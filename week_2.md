@@ -48,6 +48,9 @@
 
 ### Dinner
 
+- Pasta, Vegetables, Chicken Curry
+- 2x bowls of cereal
+
 ## Thursday
 
 ### Breakfast
