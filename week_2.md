@@ -55,6 +55,8 @@
 
 ### Breakfast
 
+- Half a cup of soup (leftovers from daughter's breakfast)
+
 ### Lunch
 
 ### Dinner
