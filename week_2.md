@@ -69,6 +69,8 @@
 
 ### Breakfast
 
+- 1 strawberry
+
 ### Lunch
 
 ### Dinner
