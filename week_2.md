@@ -59,6 +59,8 @@
 
 ### Lunch
 
+- Kus Kus w/ Vegetables and Chicken
+
 ### Dinner
 
 ## Friday
