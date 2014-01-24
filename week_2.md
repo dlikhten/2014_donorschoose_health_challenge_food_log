@@ -63,6 +63,8 @@
 
 ### Dinner
 
+- Pasta with Sausages
+
 ## Friday
 
 ### Breakfast
