@@ -74,6 +74,7 @@
 ### Lunch
 
 - Sauteed vegetables, pasta, chicken
+- grapes
 
 ### Dinner
 
