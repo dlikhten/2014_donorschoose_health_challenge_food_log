@@ -73,7 +73,7 @@
 
 ### Lunch
 
-
+- Sauteed vegetables, pasta, chicken
 
 ### Dinner
 
