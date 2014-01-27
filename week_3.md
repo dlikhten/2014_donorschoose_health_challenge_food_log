@@ -11,3 +11,9 @@
 
 - Pear
 - Toasted bread (sorry I don't know english translation)
+
+### Lunch
+
+- Rice + Chicken + Spinnach
+- Apple
+- Mac -n- cheese (home made)
