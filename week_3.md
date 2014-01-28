@@ -17,3 +17,9 @@
 - Rice + Chicken + Spinnach
 - Apple
 - Mac -n- cheese (home made)
+
+### Dinner
+
+- Orange
+- Vegetables, Pasta, Baked Chicken
+- 2nd serving of pasta + chicken.
