@@ -29,3 +29,7 @@
 ### Breakfast
 
 - Skip
+
+### Lunch
+
+- Loving Hutt -- Crispy Vegan Burger + Chips
