@@ -33,3 +33,8 @@
 ### Lunch
 
 - Loving Hutt -- Crispy Vegan Burger + Chips
+
+### Dinner
+
+- Rice + chicken curry + corn
+- Snacks
