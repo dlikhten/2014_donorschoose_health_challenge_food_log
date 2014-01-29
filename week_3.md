@@ -38,3 +38,9 @@
 
 - Rice + chicken curry + corn
 - Snacks
+
+## Wednesday
+
+### Breakfast
+
+- Yogurt
