@@ -61,3 +61,11 @@
 ### Breakfast
 
 - Skip
+
+
+### Lunch
+
+- Mac n cheese (home made) + chicken
+- Apple
+- Mandarin
+- Grapes
