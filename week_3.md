@@ -55,3 +55,9 @@
 - Mashed potatoes, chicken, salad (just a bunch of vegetables mixed with oil)
 - Apple
 - Toasted bread
+
+## Thursday
+
+### Breakfast
+
+- Skip
