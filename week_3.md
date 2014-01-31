@@ -74,3 +74,9 @@
 
 - Mashed Potatoes, Vegetables, Shrimp
 - Pear
+
+## Friday
+
+### Breakfast
+
+- fried potatoes
