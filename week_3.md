@@ -69,3 +69,8 @@
 - Apple
 - Mandarin
 - Grapes
+
+### Dinner
+
+- Mashed Potatoes, Vegetables, Shrimp
+- Pear
