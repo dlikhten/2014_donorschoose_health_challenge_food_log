@@ -80,3 +80,13 @@
 ### Breakfast
 
 - fried potatoes
+
+### Lunch
+
+- Chicken, some kus kus + vegetables
+- Apple
+- Orange
+
+### Lunch the 2nd
+
+- Sandwitch (ham, cheese, peppers)
