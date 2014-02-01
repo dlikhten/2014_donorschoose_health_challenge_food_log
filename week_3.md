@@ -90,3 +90,7 @@
 ### Lunch the 2nd
 
 - Sandwitch (ham, cheese, peppers)
+
+### Dinner
+
+- mashed potatoes, vegetables, chicken
