@@ -9,3 +9,10 @@
 ### Lunch
 
 - Potbelly Sandwitch
+
+### Dinner
+
+- Vegetable Soup
+- Buckwheat + Sausage
+- Spaghetti + Steak
+- Pear
