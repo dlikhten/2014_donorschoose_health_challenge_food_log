@@ -16,3 +16,9 @@
 - Buckwheat + Sausage
 - Spaghetti + Steak
 - Pear
+
+## Tuesday
+
+### Breakfast
+
+- Ham sandwitch (no sugar bread)
