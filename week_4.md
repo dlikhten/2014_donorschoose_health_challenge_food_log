@@ -26,3 +26,12 @@
 ### Lunch
 
 - Vegetarian Indian wraps.
+
+### Snack
+
+- 3x oranges
+
+### Dinner
+
+- Mac n Cheese + Chicken Cutlets
+- Pear
