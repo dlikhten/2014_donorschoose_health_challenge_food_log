@@ -41,3 +41,7 @@
 ### Breakfast
 
 - Cereal Leftovers
+
+### Lunch
+
+- Buckwheat + Sausages
