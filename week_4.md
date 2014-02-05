@@ -35,3 +35,9 @@
 
 - Mac n Cheese + Chicken Cutlets
 - Pear
+
+## Wednesday
+
+### Breakfast
+
+- Cereal Leftovers
