@@ -45,3 +45,15 @@
 ### Lunch
 
 - Buckwheat + Sausages
+
+### Snack
+
+- Calamari
+- French Fries
+- Lemon Slices
+
+### Dinner
+
+- Chicken cutlets + sausage
+- PB&J sandwitch (low sugar)
+- Pear
