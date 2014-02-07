@@ -57,3 +57,14 @@
 - Chicken cutlets + sausage
 - PB&J sandwitch (low sugar)
 - Pear
+
+## Thursday
+
+### WFH, therefore erratic eating
+
+- 2x oranges
+- Chicken Cutlet x2
+- Serving of Sausage x2
+- Serving of Pasta x2
+- Pear
+- Nuts
