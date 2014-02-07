@@ -68,3 +68,20 @@
 - Serving of Pasta x2
 - Pear
 - Nuts
+
+## Friday
+
+### Breakfast
+
+- Skip
+
+### Lunch
+
+- Cabbage Salad
+- Chicken w/ Rice
+- Orange
+
+### Pre-Dinner
+
+- A couple of chicken nuggets
+- A bit of pasta
