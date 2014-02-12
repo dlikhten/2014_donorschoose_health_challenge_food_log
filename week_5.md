@@ -20,3 +20,13 @@
 ### Breakfast
 
 - Skip
+
+### Lunch
+
+- Pasta w/ Meatballs
+- Orange
+- 2x mandarins
+
+### Dinner
+
+- Rice w/ Stir-fry vegetables and chicken x2
