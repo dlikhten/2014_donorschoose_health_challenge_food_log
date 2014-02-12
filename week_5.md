@@ -30,3 +30,9 @@
 ### Dinner
 
 - Rice w/ Stir-fry vegetables and chicken x2
+
+## Wednesday
+
+### Breakfast
+
+- Egg sandwitch
