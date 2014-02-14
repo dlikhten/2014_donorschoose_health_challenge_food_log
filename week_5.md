@@ -36,3 +36,22 @@
 ### Breakfast
 
 - Egg sandwitch
+
+### Lunch
+
+- Peanut butter chicken w/ pasta
+- Oranges
+
+### Dinner
+
+- Pasta, meatballs, vegetables, salad, guacamole
+
+## Thursday
+
+### Erratic eating
+
+- Rice
+- Meatballs w/ pasta
+- Peanutbutter chicken w/ mac n cheese
+- Mandarins
+
