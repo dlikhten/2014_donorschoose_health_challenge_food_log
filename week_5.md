@@ -55,3 +55,18 @@
 - Peanutbutter chicken w/ mac n cheese
 - Mandarins
 
+## Friday
+
+### Lunch
+
+- Spaghetti + Meatballs
+- Fruits
+
+### Dinner
+
+- Fish @ restaurant + carrots (they were large)
+- Desert
+
+### Later
+
+- Soup
