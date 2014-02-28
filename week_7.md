@@ -46,3 +46,13 @@
 ### Lunch
 
 - Beef noodle soup
+
+### Dinner
+
+- Chinese food
+
+## Friday
+
+### Breakfast
+
+- Tuna sandwitch
