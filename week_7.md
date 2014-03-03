@@ -56,3 +56,12 @@
 ### Breakfast
 
 - Tuna sandwitch
+
+### Lunch
+
+- Chicken + Potatoes
+- Fruits
+
+### Dinner
+
+- Soup, port, desert (restaurant)
