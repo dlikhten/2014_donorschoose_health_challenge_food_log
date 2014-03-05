@@ -31,3 +31,9 @@
 ### Dinner
 
 - Rice w/ Chicken
+
+## Wednesday
+
+### Breakfast
+
+- Pasta w/ chicken
