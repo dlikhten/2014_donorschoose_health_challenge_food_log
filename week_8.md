@@ -48,3 +48,9 @@
 ### Dinner
 
 - Russian meat dumplings.
+
+## Thursday
+
+### Breakfast
+
+- Skip
