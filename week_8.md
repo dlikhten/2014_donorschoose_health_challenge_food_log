@@ -36,4 +36,15 @@
 
 ### Breakfast
 
-- Pasta w/ chicken
+- Pasta w/ Fish
+
+### Lunch
+
+- Bagel w/ cream cheese
+- Pasta w/ Fish
+- Apple
+- Orange
+
+### Dinner
+
+- Russian meat dumplings.
