@@ -71,3 +71,5 @@
 - Half a bagel
 
 ### Lunch
+
+- Vegetable Burrito + chips
