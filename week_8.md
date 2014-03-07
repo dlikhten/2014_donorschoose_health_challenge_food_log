@@ -54,3 +54,20 @@
 ### Breakfast
 
 - Skip
+
+### Lunch
+
+- Mashed Potatoes + Meatballs
+- Grapes
+
+### Dinner
+
+- Spaghetti + Chicken
+
+## Friday
+
+### Breakfast
+
+- Half a bagel
+
+### Lunch
